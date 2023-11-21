@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @alhookanoo
-- 👀 I’m interested in football and its not soccer
+- 👀 I’m interested in football (its not soccer) and anime
 - 🌱 I’m currently learning computing or ICT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
